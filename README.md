@@ -9,6 +9,8 @@ Contact me on Discord: Millitarychest\#1591
 * If you want your art to be added
 * If you got any questions
 
+
+I am fine with you creating art of any kind out of my character as long as it is legal.
 go nuts!!!
 
 :)
